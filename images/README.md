@@ -1,0 +1,1 @@
+Anatomi kitap kapakları.
